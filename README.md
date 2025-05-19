@@ -2,7 +2,7 @@
 - 👀 I’m interested in leaning how to create perfect websites and Apps.
 - 🌱 I’m currently learning Programing in IT.
 - 💞️ I’m looking to collaborate on App creation.
-- 📫 How to reach me: Mrbsluphoko@gmail.com
+- 📫 How to reach me: Mrbsluphoko@gmail.com/ +27 62 703 3251.
 - 😄 Pronouns: King B
 - ⚡ Fun fact: I'm rich...
 
